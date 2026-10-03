@@ -28,4 +28,4 @@
 - EV Charging & DER Hosting Capacity Research
 
 ## 📫 Connect With Me
-LinkedIn: [Your LinkedIn]
+LinkedIn: [https://www.linkedin.com/in/abdullah-awan-5ba9a2116/?isSelfProfile=true]
